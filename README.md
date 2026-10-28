@@ -15,3 +15,6 @@
 + altro inflator https://www.amazon.es/dp/B0DGH2GWDK/ref=sspa_dk_detail_0?pd_rd_i=B0DGH2GWDK&pd_rd_w=hrqCD&content-id=amzn1.sym.1a1cf43a-d009-48e1-8554-8b895fd31e09&pf_rd_p=1a1cf43a-d009-48e1-8554-8b895fd31e09&pf_rd_r=N3N7VBFSR9VDEJZ3Q9CT&pd_rd_wg=r4R01&pd_rd_r=e30fc241-dfb2-4e49-97db-041133264066&aref=g8FxQwVqD8&sp_csd=d2lkZ2V0TmFtZT1zcF9kZXRhaWw&th=1
 + altro inflator https://www.amazon.es/dp/B09MYNX9BV/ref=sspa_dk_detail_1?psc=1&aref=m5Ja4eOVFg&sp_csd=d2lkZ2V0TmFtZT1zcF9kZXRhaWw
 + inflator di cri https://www.amazon.es/dp/B09NXTVF8B
+
+https://www.amazon.es/BESNIN-Crankset-53T-56T-58T/dp/B0D9LPWZ93/ref=sr_1_14?__mk_es_ES=%C3%85M%C3%85%C5%BD%C3%95%C3%91&crid=2LFXATU7BAOXJ&dib=eyJ2IjoiMSJ9.J8A75vOatiOWW7kAMSiiMKApzZJJah172v5TSz8-EQtW1ozhdwrW-RQUzpsA7JdWKYG4NfTSuaQ6qpwX5D542E8V8K_M-qt1Vik1mENagCUVhohWyxNup9UaSNOiBtCuE5tJpxGgeagIhs3WRpiBaXJKNHJO0zmoyJ-HLAB92wDrHVKuQ-dtex0jy5ScCYvRgm4xScTb8Wj0rKkHiV0OG_RUZFa26-9AEJFU6IwoQAHFq0-lNJkY4UYhbglrc_y67Da99TOqmyBOWKSBPuCTQ1wogrOziM3PLST32A_plN8.PTR9rj49UqfFc6DqzGgauHjkKJeyumH0bwhXkWoqdOc&dib_tag=se&keywords=Juego%2Bde%2Bbielas%2B56T%2F%2B130%2Bmm&qid=1793204281&refinements=p_72%3A831280031&rnid=831271031&sprefix=juego%2Bde%2Bbielas%2B56t%2F%2B130%2Bmm%2Caps%2C93&sr=8-14&th=1
+https://www.amazon.es/dp/B0CSKB4C65?ref=ppx_yo2ov_dt_b_fed_asin_title
